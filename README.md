@@ -1,1 +1,1 @@
-<Dengke Zhao>, [dkannaheim](https://github.com/GitHubID)
+Dengke Zhao, dkannaheim(https://github.com/GitHubID)
